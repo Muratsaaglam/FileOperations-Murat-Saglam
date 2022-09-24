@@ -1,5 +1,7 @@
 # FileOperations-Murat-Saglam
-Medium Blog 
+✍️Medium Blog Content
+
+My Social Media Accounts :
 
 Linkedin : www.linkedin.com/in/muratsaaglam/
 
